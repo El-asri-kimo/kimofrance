@@ -1,2 +1,0 @@
-# kimofrance
-kimo iptv
